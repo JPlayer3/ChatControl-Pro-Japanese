@@ -1,0 +1,1 @@
+# ChatControl-Pro-Japanese
